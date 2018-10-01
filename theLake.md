@@ -7,3 +7,9 @@ So lovely was the loneliness
 Of a wild lake, with black rock bound,
 And the tall pines that towered around.
 
+But when the Night had thrown her pall
+Upon that spot, as upon all,
+And the mystic wind went by
+Murmuring in melody-
+Then- ah then I would awake
+To the terror of the lone lake.
