@@ -13,3 +13,9 @@ And the mystic wind went by
 Murmuring in melody-
 Then- ah then I would awake
 To the terror of the lone lake.
+
+Yet that terror was not fright,
+But a tremulous delight-
+A feeling not the jewelled mine
+Could teach or bribe me to define-
+Nor Love- although the Love were thine.
