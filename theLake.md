@@ -19,3 +19,12 @@ But a tremulous delight-
 A feeling not the jewelled mine
 Could teach or bribe me to define-
 Nor Love- although the Love were thine.
+
+Death was in that poisonous wave,
+And in its gulf a fitting grave
+For him who thence could solace bring
+To his lone imagining-
+Whose solitary soul could make
+An Eden of that dim lake. 
+
+Edgar Allan Poe
