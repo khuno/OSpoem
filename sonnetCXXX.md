@@ -1,31 +1,31 @@
-Sonnet CXXX
+## Sonnet CXXX
 
-My mistress' eyes are nothing like the sun;
+_My mistress' eyes are nothing like the sun;_
 
-Coral is far more red than her lips' red;
+_Coral is far more red than her lips' red;_
 
-If snow be white, why then her breasts are dun;
+_If snow be white, why then her breasts are dun;_
 
-If hairs be wires, black wires grow on her head.
+_If hairs be wires, black wires grow on her head._
 
-I have seen roses damask'd, red and white,
+_I have seen roses damask'd, red and white,_
 
-But no such roses see I in her cheeks;
+_But no such roses see I in her cheeks;_
 
-And in some perfumes is there more delight
+_And in some perfumes is there more delight_
 
-Than in the breath that from my mistress reeks.
+_Than in the breath that from my mistress reeks._
 
-I love to hear her speak, yet well I know
+_I love to hear her speak, yet well I know_
 
-That music hath a far more pleasing sound;
+_That music hath a far more pleasing sound;_
 
-I grant I never saw a goddess go;
+_I grant I never saw a goddess go;_
 
-My mistress, when she walks, treads on the ground:
+_My mistress, when she walks, treads on the ground:_
 
-And yet, by heaven, I think my love as rare
+_And yet, by heaven, I think my love as rare_
     
-As any she belied with false compare.
+_As any she belied with false compare._
 
-William Shakespeare
+**William Shakespeare**
