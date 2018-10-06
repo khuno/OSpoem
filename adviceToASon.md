@@ -11,4 +11,8 @@ Always put paper on the seat,<br>
 Don't believe in wars,<br>
 Keep yourself both clean and neat,<br>
 Never marry whores.<br>
+Never pay a blackmailer,<br>
+Never go to law,<br>
+Never trust a publisher,<br>
+Or you'll sleep on straw.<br>
 *Ernest Hemingway*
